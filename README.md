@@ -1,3 +1,3 @@
 # LigmaBallz
 # how u doin
-# Bunny Girl Sempaiiiiii
+# Bunny Girl Sempaiiiiii# Goku sucks
